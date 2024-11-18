@@ -1,1 +1,0 @@
-An average-sized egg contains approximately 6–7 grams of protein, with egg whites contributing 3-4 grams and yolks containing the remainder, making eggs a valuable source of essential amino acids and various nutrients.
